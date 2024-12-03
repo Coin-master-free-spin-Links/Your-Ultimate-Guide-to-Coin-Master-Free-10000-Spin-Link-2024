@@ -3,7 +3,7 @@ Coin Master has captured the hearts of gamers worldwide with its unique blend of
 
 &nbsp;
 
-<strong>👉⏩ <a href="https://todaylink.site/CoinMasters/" rel="nofollow">CLICK HERE TO GET FREE LINK</a></strong>
+<strong>👉⏩ <a href="https://coinmasterfreespinslink.github.io/My-Sell-Page/">CLICK HERE TO GET FREE LINK</a></strong>
 
 &nbsp;
 <h2>What is Coin Master?</h2>
